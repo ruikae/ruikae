@@ -1,4 +1,5 @@
-## Hi there 👋
+## Honestly, i'm just here sporadically ❁
+(idk how to use this)
 
 <!--
 **ruikae/ruikae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
